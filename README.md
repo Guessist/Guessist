@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Guessist
-- 👀 I’m interested in making website 
+- 👀 I’m interested in developing funny things. just hobby right now :)
 - 🌱 I’m currently learning making website
 - 💞️ I’m looking to collaborate on patant 
 - 📫 How to reach me ...
