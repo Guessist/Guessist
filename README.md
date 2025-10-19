@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Guessist
 - 👀 I’m interested in developing funny things. just hobby right now :)
 - 🌱 I’m currently learning making website
-- 💞️ I’m looking to collaborate on patant 
+- 💞️ I’m looking to collaborate on Intellectual Property 
 - 📫 How to reach me ...
 
 <!---
